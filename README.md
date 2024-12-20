@@ -1,5 +1,5 @@
 # 💫 About Me:
-druthikumar <br>e Coding  <br>5th sem <br>Engineering student<br> unlocking all trophies ☠️<br>Deep committer space<br>
+druthikumar <br>Love to Coding  <br>5th sem <br>Engineering student<br> unlocking all trophies ☠️<br>Deep committer space<br>
 
 
 ## 🌐 Socials:
