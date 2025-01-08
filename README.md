@@ -1,5 +1,6 @@
-# 💫 About Me:
-Hyy these is Druthi
+# 💫 About Me :
+Hyy am Druthi
+3year 5th sem
 To Become a Professional Software Engineer ❤️
 druthikumar <br>Love to Code  <br>5th sem <br>Engineering student<br> unlocking all trophies ☠️<br>Deep committer space<br>
 
