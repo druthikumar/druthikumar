@@ -1,4 +1,4 @@
-# 💫 About Me :
+# 💫 About Me😎💰:
 Hyy am Druthi
 3year 5th sem
 To Become a Professional Software Engineer ❤️
