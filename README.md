@@ -2,6 +2,7 @@
 
 Hyy am Druthikumar
 3year 6th sem
+Information science and engineering 
 To Become a Professional Software Engineer ❤️
 druthikumar <br>Love to Coding  <br>5th sem <br>Engineering student<br> unlocking all trophies ☠️<br>Deep committer space<br>
 
