@@ -1,4 +1,4 @@
-........💫 About Me😎💰:,
+........💫 About Me😎
 
 Hyy am Druthikumar
 3year 6th sem
