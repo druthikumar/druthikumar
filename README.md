@@ -1,6 +1,6 @@
-💫 About Me😎::
+💫 About Me😎
 
-Hyy am Druthikumar
+Am Druthikumar
 3year 6th sem
 Information science and engineering 
 To Become a Professional Software Engineer ❤️
